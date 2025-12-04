@@ -1,3 +1,3 @@
-c+h/int is always ok! feel free to message me on discord, i dont bite, only hug :3 (alekscatoby29)
+c+h is always ok
 
-pls read BYI and DNI in carrd!
+read BYI list in carrd if you dont wanna interact with a freak on accident :3c
