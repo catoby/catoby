@@ -1,7 +1,9 @@
-c+h is always ok
+ c+h is always ok
 
-laggy
+laggy for a time being
 
-w2i unless i have the 'looking to chat' thingy on
+only safe discussion themes pls
 
-ask for discord
+interaction always welcome, but i might not respond since usually im drawing or in the menu while in game. use whispers to get my attention :)
+
+ask for discord, i usually give it away after a little chat
