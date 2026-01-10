@@ -1,4 +1,4 @@
-best thing ever is a new, shiny, slim AK-74M and some vodka with my comrades, of course.
+best thing ever is a new, shiny, slim AK-74M, blonde girls, and some vodka with my comrades, of course.
 
 ![ММГ_АК74М-М_1](https://github.com/user-attachments/assets/262c86fe-297d-4ceb-9d69-f2545fac6b0c)
 
