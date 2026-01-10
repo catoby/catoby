@@ -1,6 +1,7 @@
 best thing ever is a new, shiny, slim AK-74M and some vodka with my comrades, of course.
 
-<img width="2000" height="1400" alt="Frame-74" src="https://github.com/user-attachments/assets/a21f5a2a-97b5-43d4-ab14-6ec89af78674" />
+![ММГ_АК74М-М_1](https://github.com/user-attachments/assets/262c86fe-297d-4ceb-9d69-f2545fac6b0c)
+
 
 c+h and int is always ok, tho i might not reply if im busy. whisper to get my attention if im not answering
 
