@@ -1,9 +1,3 @@
- c+h is always ok
+c+h and int is always ok, tho i might not answer if im busy. whisper to get my attention if im not answering
 
-laggy for a time being because im on my mom's pc
-
-only safe and safe-ish discussion themes pls, no NSFW
-
-interaction always welcome, but i might not respond since usually im drawing or in the menu while in game. use whispers to get my attention :)
-
-ask for discord, i usually give it away after a little chat
+byi: im an edgelord with mental issues that cant get help, dni if u dont like that. i wouldnt say im problematic but other people do :^)
