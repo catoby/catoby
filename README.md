@@ -1,6 +1,6 @@
 best thing ever is a new, shiny AK-12, an AK-74M
 
-<img width="2000" height="700" alt="AK-12" src="https://github.com/user-attachments/assets/ff84ac54-22f0-4f7f-b8ef-07b03c0115cf" /><img width="2560" height="796" alt="Frame-74" src="https://github.com/user-attachments/assets/b05b76b0-183c-48e5-8969-4359afe3cd9b" />
+<img width="1700" height="700" alt="AK-12" src="https://github.com/user-attachments/assets/ff84ac54-22f0-4f7f-b8ef-07b03c0115cf" /><img width="1700" height="700" alt="Frame-74" src="https://github.com/user-attachments/assets/b05b76b0-183c-48e5-8969-4359afe3cd9b" />
 
 
 
