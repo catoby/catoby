@@ -4,5 +4,7 @@ best thing ever is a new, shiny AK-12
 
 and some vodka with my comrades, of course.
 
+![bc4fce55bf39aaa1ca7072c4225c42a0](https://github.com/user-attachments/assets/74abdd27-79d2-453e-a44e-fc4b6659946f)
+
 c+h and int is always ok, tho i might not answer if im busy. whisper to get my attention if im not answering
 
