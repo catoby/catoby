@@ -1,10 +1,4 @@
-best thing ever is a new, shiny AK-12, an AK-74M
-
-<img width="1200" height="700" alt="AK-12" src="https://github.com/user-attachments/assets/ff84ac54-22f0-4f7f-b8ef-07b03c0115cf" /><img width="1200" height="700" alt="Frame-74" src="https://github.com/user-attachments/assets/b05b76b0-183c-48e5-8969-4359afe3cd9b" />
-
-
-
-and some vodka with my comrades, of course.
+best thing ever is a new, shiny AK-12, a slim AK-74M, a good and sturdy AK-47 and some vodka with my comrades, of course.
 
 c+h and int is always ok, tho i might not reply if im busy. whisper to get my attention if im not answering, usually works... usually
 
