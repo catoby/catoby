@@ -9,7 +9,8 @@ c+h and int is always ok, tho i might not reply if im busy. whisper to get my at
 
 
 
-<img width="99" height="56" alt="iwillkillyou" src="https://github.com/user-attachments/assets/6e612872-bcd6-4f0a-99a7-392cd61e5f76" /><img width="99" height="56" alt="horrortime" src="https://github.com/user-attachments/assets/39b140b7-6c00-4ed5-a0c4-4b2f8e82a932" />![b34](https://github.com/user-attachments/assets/da7f0dc7-ac66-456c-b4f6-41e502140ec7)![d42](https://github.com/user-attachments/assets/b624c439-33fb-484b-8b8e-2109bc56916c)![d41](https://github.com/user-attachments/assets/3a20a0f1-7bd5-438a-a8e8-82a778688961)<img width="99" height="55" alt="d53" src="https://github.com/user-attachments/assets/c298c888-a498-436c-85a0-f321ecc9a16d" />
+<img width="99" height="56" alt="iwillkillyou" src="https://github.com/user-attachments/assets/6e612872-bcd6-4f0a-99a7-392cd61e5f76" /><img width="99" height="56" alt="horrortime" src="https://github.com/user-attachments/assets/39b140b7-6c00-4ed5-a0c4-4b2f8e82a932" />![b34](https://github.com/user-attachments/assets/da7f0dc7-ac66-456c-b4f6-41e502140ec7)![d42](https://github.com/user-attachments/assets/b624c439-33fb-484b-8b8e-2109bc56916c)![d41](https://github.com/user-attachments/assets/3a20a0f1-7bd5-438a-a8e8-82a778688961)<img width="99" height="55" alt="d53" src="https://github.com/user-attachments/assets/c298c888-a498-436c-85a0-f321ecc9a16d" />![transnerds](https://github.com/user-attachments/assets/a7133270-1449-4623-ae4a-0ba0d7fab86f)
+
 
 
 
