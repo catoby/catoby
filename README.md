@@ -17,3 +17,5 @@ Int please always! C+h is okay. I promise I'm not completely insane :-D
 
 
 ![x49](https://github.com/user-attachments/assets/796e7946-0f9d-4805-856a-2ca2a6ec4d49)![h12](https://github.com/user-attachments/assets/7318c2cf-e0a2-4e9c-af41-2629fc5c3fcf)![a14](https://github.com/user-attachments/assets/dae7cb8f-021b-4a7a-8197-1df2efa33e1b)![a10](https://github.com/user-attachments/assets/1a645086-d2aa-4927-8864-fee81a3fad9d)
+
+send any complaints to my atabook, scold me for being edgy, I'm bored
