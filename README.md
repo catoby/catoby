@@ -1,6 +1,6 @@
 Remington 870, my beloved
 
-![straykbolnyy-drobovik-cyma-remington-m870-long-metall-cm-350lm-9](https://github.com/user-attachments/assets/f4e13828-bb6c-4b7b-b4a6-5a40e7d38506)
+![rem870_7428aa5c1f390a6e406a20ff81151e45](https://github.com/user-attachments/assets/6fd1f539-9bde-46ec-871a-6279db69bc18)
 
 
 
