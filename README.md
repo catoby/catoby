@@ -1,6 +1,7 @@
 Remington 870, my beloved
 
-![images (1)](https://github.com/user-attachments/assets/4942c4c5-9427-484d-8b7b-f46f3dfc9908)
+<img width="304" height="166" alt="images" src="https://github.com/user-attachments/assets/32af7b03-be8e-4622-ac88-6ef094dab305" />
+
 
 C+h and int freely always! I promise I'm not completely insane :-D
 
