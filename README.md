@@ -1,6 +1,7 @@
 Remington 870, my beloved
 
-<img width="304" height="166" alt="images" src="https://github.com/user-attachments/assets/32af7b03-be8e-4622-ac88-6ef094dab305" />
+![straykbolnyy-drobovik-cyma-remington-m870-long-metall-cm-350lm-9](https://github.com/user-attachments/assets/f4e13828-bb6c-4b7b-b4a6-5a40e7d38506)
+
 
 
 C+h and int freely always! I promise I'm not completely insane :-D
