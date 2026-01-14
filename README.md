@@ -1,8 +1,6 @@
+Remington 870, my beloved
 
-
-I need a slim and sexy AK-74M to feel alive
-
-![ММГ_АК74М-М_1](https://github.com/user-attachments/assets/262c86fe-297d-4ceb-9d69-f2545fac6b0c)
+![images (1)](https://github.com/user-attachments/assets/4942c4c5-9427-484d-8b7b-f46f3dfc9908)
 
 C+h and int freely always! I promise I'm not completely insane :-D
 
