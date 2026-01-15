@@ -1,3 +1,6 @@
+![zero-day-andre-kriegman](https://github.com/user-attachments/assets/acf92ecf-d7b1-4302-b6d9-ddd9e40e3d76)
+
+
 Remington 870, my beloved
 
 ![rem870_7428aa5c1f390a6e406a20ff81151e45](https://github.com/user-attachments/assets/6fd1f539-9bde-46ec-871a-6279db69bc18)
