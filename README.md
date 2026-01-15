@@ -1,5 +1,6 @@
-!![zero-day-cal-gabriel (1)](https://github.com/user-attachments/assets/96575513-754f-4779-bd47-232bea91b8aa)
-[zero-day-andre-kriegman](https://github.com/user-attachments/assets/acf92ecf-d7b1-4302-b6d9-ddd9e40e3d76)
+
+![zero-day-cal-gabriel (1)](https://github.com/user-attachments/assets/87c632b8-6b58-4b91-9456-5fcdd4cf821d)![zero-day-andre-kriegman](https://github.com/user-attachments/assets/c5b59f41-2196-4581-9b41-386526fe0407)
+
 
 
 Remington 870, my beloved
