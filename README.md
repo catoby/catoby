@@ -1,5 +1,5 @@
 
-![zero-day-cal-gabriel (1)](https://github.com/user-attachments/assets/87c632b8-6b58-4b91-9456-5fcdd4cf821d)![zero-day-andre-kriegman](https://github.com/user-attachments/assets/c5b59f41-2196-4581-9b41-386526fe0407)
+![zero-day-cal-gabriel (1)](https://github.com/user-attachments/assets/87c632b8-6b58-4b91-9456-5fcdd4cf821d)
 
 
 
