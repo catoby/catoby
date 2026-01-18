@@ -1,5 +1,6 @@
 
-![cal-gabriel-zero-day](https://github.com/user-attachments/assets/a3915967-61c7-4ad0-8b82-82ec2a3f8485)
+
+![zero-day-cal-gabriel (1)](https://github.com/user-attachments/assets/3eaef863-2879-49ec-8bd9-aceb88334ef6)
 
 
 
