@@ -5,7 +5,7 @@
 
 
 
-C+h and int freely always! W2i if im busy/away.
+C+h and int freely always! W2i if im busy/away or in the menu
 
 ![kmfdm](https://github.com/user-attachments/assets/737dfd71-970f-49ce-8ad3-a17ad4b6aa65)![allergic to people](https://github.com/user-attachments/assets/65f8fbce-229b-4452-959e-87d9bb9f3659)<img width="99" height="59" alt="e83" src="https://github.com/user-attachments/assets/bd6104cd-c578-4a9d-98da-12f9fca372f2" />
 
