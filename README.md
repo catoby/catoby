@@ -1,1 +1,5 @@
-![cautiondivider2](https://github.com/user-attachments/assets/872b6475-eca7-4bdf-91c0-1282d9342455)
+сheck carrd for info
+
+c+h/int freely always, w2i if im busy/away or in the menu
+
+i might be abit awkward with convos because im poorly socialized and shy
