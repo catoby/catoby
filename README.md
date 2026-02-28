@@ -1,5 +1,3 @@
-BEST HEBEPHRENIC SCHIZOPHRENIC BOY YOU'LL EVER MEET
-
 CUDDLES AND INT IS ALWAYS WELCOME
 
 all info + discord in carrd, looking for yapper friends for a friend group
