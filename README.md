@@ -1,4 +1,4 @@
-CUDDLES AND INT IS ALWAYS WELCOME
+CUDDLES AND INT IS ALWAYS WELCOME!!! W2I if im in menu or busy
 
 all info + discord in carrd, looking for yapper friends for a friend group
 
