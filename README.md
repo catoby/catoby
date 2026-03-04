@@ -10,8 +10,6 @@ all info + discord in carrd, looking for yapper friends for a friend group
 
 ![tumblr_inline_poug68AtRc1vsc6si_250](https://github.com/user-attachments/assets/718ea36b-b7fc-49dc-b84f-5cd2c748fa24)
 
-![tumblr_f8297d285bddf74419c7ece5492c7153_5bda2e6f_250](https://github.com/user-attachments/assets/ba546049-ee72-403c-951a-ec1c1f0662c5)
-
 ![x49](https://github.com/user-attachments/assets/0ef71508-23af-4f0d-b61e-45c601e8bb19)
 
 
